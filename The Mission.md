@@ -1,0 +1,1 @@
+To write my diving show like a nightly journal. Real shorthand style. Just get stuff on a page. How I imagine Dragon Ball being written. How a DND session is written.
